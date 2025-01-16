@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Aditya Patel
-- 👀 I’m  tech lover.
+- 👀 I’m  a technophile.
 - 📫 How to reach me ...
 - email-: aditya2357patel@gmail.com
 - 😄 Pronouns: ...
